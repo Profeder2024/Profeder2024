@@ -9,4 +9,4 @@ Meu nome é Eder
 
 eder.horst.silva@escola.pr.gov.br
 
-![](https://tenor.com/pt-PT/view/hello-wave-hi-gif-21825039)
+![](https://media1.tenor.com/m/2yZ8j2p1YEAAAAAC/hello-wave.gif)
