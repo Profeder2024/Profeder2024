@@ -8,3 +8,5 @@ Meu nome é Eder
 - ### Voce pode entrar em contato comigo 📧
 
 eder.horst.silva@escola.pr.gov.br
+
+![](https://tenor.com/pt-PT/view/hello-wave-hi-gif-21825039)
